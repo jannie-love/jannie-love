@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... whatever catches my interest
 - 📫 How to reach me ...sillyrabbitrun@outlook.com
 - 😄 Pronouns: ... she works fine
-- ⚡ Fun fact: ... i just got out of prison
+- ⚡ Fun fact: ... i just got out of prison - Congrats!
 
 <!---
 jannie-love/jannie-love is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
